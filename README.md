@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shivamsinghhiro@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1B-fdWIfzUV_OizJ3p1g0qI4n9rGOrCXP/view?usp=sharing](https://drive.google.com/file/d/1B-fdWIfzUV_OizJ3p1g0qI4n9rGOrCXP/view?usp=sharing)
+- 📄 Know about my experiences here in my [résumé](https://drive.google.com/file/d/1MB8hPUq6ln70fuRserffs6R5ox79t4oz/view?usp=sharing)
 
 - ⚡ Fun fact **I've transformed more lines of code into working projects than cups of coffee into energy!**
 
